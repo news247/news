@@ -147,3 +147,16 @@ http://www.3lmnews.com/alnassr-match-18-10-2015/
 مشاهدة مباراة يوفنتوس وإنتر ميلان بث مباشر اليوم
 
 http://www.3lmnews.com/juventus-match-18-10-2015/
+
+تحميل فيس بوك ماسنجر Facebook Messenger 2016 احدث اصدار ,رابط مباشر تنزيل فيس بوك ماسنجر عربي مجاني Facebook Messenger
+
+http://www.3lmnews.com/facebook-messenger-free-2015/
+
+توقعات درجات الحرارة غدا الاربعاء 28-10-2015 فى مصر ,اخر اخبار و توقعات الطقس غدا الاربعاء 28 اكتوبر 2015
+
+http://www.3lmnews.com/weather-egypt-28-10-2015/
+
+اسعار الدولار فى السوق السوداء فى مصر اليوم الثلاثاء 27-10-2015 ,اسعار العملات مقابل الجنيه فى مصر
+
+http://www.3lmnews.com/dollar-prices-egypt-27-10-2015/
+
